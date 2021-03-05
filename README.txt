@@ -1,1 +1,1 @@
-Adam Chung, Aspiring robotics engineer - Portfolio  
+Adam Chung, Aspiring Robotics Engineer - Portfolio  
